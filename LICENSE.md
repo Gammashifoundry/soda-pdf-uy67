@@ -1,4 +1,4 @@
-# 
+# best Wave para PC executor é o melhor Wave para PC executor com captura de recibos e gerenciamento de folha de pagamento. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
